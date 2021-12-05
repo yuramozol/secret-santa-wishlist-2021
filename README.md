@@ -21,6 +21,11 @@
 3. Книга Люсі Гутьєррес «Англійська для дорослих English Is Not Easy»
 4. Хустинка https://www.instagram.com/p/CT6eQoxKrli/?utm_medium=copy_link
 
+## Таня
+1. Тарілочки  з https://www.instagram.com/ceramic.studio.ua/ 
+2. (наприклад https://www.instagram.com/p/CH7ivMnjEy0/?utm_source=ig_web_copy_link чи https://www.instagram.com/p/CIk6zGhBssJ/) 
+3. (Обіцяли ціну по 150 від 3х шт, якщо ціна не актальна, то можна однакові 21 і 27)
+
 ## Андріу
 1. https://baby.maudau.com.ua/product/zavarnyk-dlia-chaiu-krauff-1-l-26-177-038?gclid=Cj0KCQiA47GNBhDrARIsAKfZ2rD5tgDpAmrBgnUfG4Kt13ZaeQu1BhUrkaKzcYsKTRwsyJTU1BGrp24aAuIAEALw_wcB
 по акції зараз 285грн, поспіши дід мороз

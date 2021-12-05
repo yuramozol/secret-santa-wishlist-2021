@@ -20,3 +20,7 @@
 2. Мухоловка або сукулент https://instagram.com/hordi.flowers?utm_medium=copy_link
 3. Книга Люсі Гутьєррес «Англійська для дорослих English Is Not Easy»
 4. Хустинка https://www.instagram.com/p/CT6eQoxKrli/?utm_medium=copy_link
+
+## Андріу
+1. https://baby.maudau.com.ua/product/zavarnyk-dlia-chaiu-krauff-1-l-26-177-038?gclid=Cj0KCQiA47GNBhDrARIsAKfZ2rD5tgDpAmrBgnUfG4Kt13ZaeQu1BhUrkaKzcYsKTRwsyJTU1BGrp24aAuIAEALw_wcB
+по акції зараз 285грн, поспіши дід мороз
